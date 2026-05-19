@@ -1,4 +1,4 @@
-# 
+# smart bot de trading NFT complementos es el mejor bot de trading NFT complementos con bypass de whitelist y detección de mint. Seguro, confiable y optimizado para estrategias de
 
 
 
